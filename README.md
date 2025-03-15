@@ -6,7 +6,7 @@ Looking to get the best deals on Magnifi products and services? You're in the ri
 
 In this article, we’ll walk you through the most valuable [50% Magnifi coupon codes](https://www.magnfi.com/boost-your-business-roi/?_go=shadow) available right now, how to redeem them, and how much you can save.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcecoDstnCftH9fi04I7RLcIGKN3jNl_PFSEILrtKZhBD8CP0-G7dguWp1GfApzgecr-wvLyeP5E2goc8qxo6JGefKPaOkgHaTCQkp4Tlw8c1cKhhPyFVoZDYDtKdAyDKyxNwhj1A?key=UUJMIbLvYbPiS-BF6GF_RpoP)](https://www.magnfi.com/boost-your-business-roi/?_go=shadow)
+[![Discount button](https://github.com/user-attachments/assets/7bab6ed2-ca72-459f-bbf3-19fa70dc884e)](https://www.magnfi.com/boost-your-business-roi/?_go=shadow)
 
 ## Latest Magnifi Coupon Codes
 
@@ -40,7 +40,7 @@ Here’s a roundup of the top Magnifi coupon codes to help you score fantastic d
 * Expiry Date: Available until [Insert Date].
 * How to Use the Code: Enter the code during checkout to get 30% off bundle packages.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcecoDstnCftH9fi04I7RLcIGKN3jNl_PFSEILrtKZhBD8CP0-G7dguWp1GfApzgecr-wvLyeP5E2goc8qxo6JGefKPaOkgHaTCQkp4Tlw8c1cKhhPyFVoZDYDtKdAyDKyxNwhj1A?key=UUJMIbLvYbPiS-BF6GF_RpoP)](https://www.magnfi.com/boost-your-business-roi/?_go=shadow)
+[![Discount button](https://github.com/user-attachments/assets/7bab6ed2-ca72-459f-bbf3-19fa70dc884e)](https://www.magnfi.com/boost-your-business-roi/?_go=shadow)
 
 ## How to Redeem Magnifi Coupon Codes?
 
@@ -58,8 +58,7 @@ On the checkout page, you’ll see a section labeled “Promo Code” or “Coup
 4. Step 4: Confirm Your Savings
 After entering the coupon code, your discount will be reflected in your total amount. Double-check your savings, and then proceed to complete your order.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcecoDstnCftH9fi04I7RLcIGKN3jNl_PFSEILrtKZhBD8CP0-G7dguWp1GfApzgecr-wvLyeP5E2goc8qxo6JGefKPaOkgHaTCQkp4Tlw8c1cKhhPyFVoZDYDtKdAyDKyxNwhj1A?key=UUJMIbLvYbPiS-BF6GF_RpoP)
-](https://www.magnfi.com/boost-your-business-roi/?_go=shadow)
+[![Discount button](https://github.com/user-attachments/assets/7bab6ed2-ca72-459f-bbf3-19fa70dc884e)](https://www.magnfi.com/boost-your-business-roi/?_go=shadow)
 
 ## Pricing Information & How Much You Can Save
 
@@ -70,7 +69,7 @@ Let’s break down the pricing and see just how much you can save when you apply
 * One-Time Products: If you’re buying one of Magnifi's products, like their specialized software tools or learning materials, use MAG10 to save 10% on your total order.
 * Bundles: Magnifi’s product bundles are a great deal, and with the MAG30 coupon, you’ll save 30% on selected packages, like the Magnifi Pro Bundle.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcecoDstnCftH9fi04I7RLcIGKN3jNl_PFSEILrtKZhBD8CP0-G7dguWp1GfApzgecr-wvLyeP5E2goc8qxo6JGefKPaOkgHaTCQkp4Tlw8c1cKhhPyFVoZDYDtKdAyDKyxNwhj1A?key=UUJMIbLvYbPiS-BF6GF_RpoP)](https://www.magnfi.com/boost-your-business-roi/?_go=shadow)
+[![Discount button](https://github.com/user-attachments/assets/7bab6ed2-ca72-459f-bbf3-19fa70dc884e)](https://www.magnfi.com/boost-your-business-roi/?_go=shadow)
 
 ## About Magnifi
 
